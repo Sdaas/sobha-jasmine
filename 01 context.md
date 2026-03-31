@@ -7,7 +7,7 @@
 
 **Sobha Jasmine Condominium is governed exclusively by the Karnataka Apartment Ownership Act, 1972 (KAOA).** It is not, and has never been, governed by the Karnataka Societies Registration Act, 1960 (KSRA).
 
-The KSRA-registered entity referenced in the SGM documents is a separate, parallel *welfare association* — an informal body that historically managed day-to-day operations. It has no statutory authority over the condominium's common areas, property rights, or governance. The entire purpose of the February 2026 SGM was, in part, to wind down that KSRA entity and consolidate governance under KAOA.
+The KSRA-registered entity referenced in the SGM documents is a separate, parallel *welfare assoc iation* — an informal body that historically managed day-to-day operations. It has no statutory authority over the condominium's common areas, property rights, or governance. The entire purpose of the February 2026 SGM was, in part, to wind down that KSRA entity and consolidate governance under KAOA.
 
 ---
 
